@@ -11,4 +11,4 @@ This site highlights my academic and project experiences as a Business Managemen
 - Business analytics 
 
 # Connect With Me 
-- Email: pimentel_alyssa24@yahoo.com
+- Email: pimentelalyssa24@gmail.com
